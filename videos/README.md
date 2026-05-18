@@ -1,2 +1,5 @@
-## خالی
-برای شروع به تب Actions رفته و از گردش‌کارهای سمت چپ استفاده کنید
+# DOWNLOADED VIDEOS LIST :
+
+----
+
+- 1 - 📽️ [Quite-literally-the-easiest-conditions-to-trade：-All-Time-Highs](https://github.com/KiaHashemi/Youtube-New/tree/main/videos/Quite-literally-the-easiest-conditions-to-trade%EF%BC%9A-All-Time-Highs)
